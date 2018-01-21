@@ -1,2 +1,2 @@
-# Early 
-THe Early Bee Network Hub 
+# EBN The Early Bee Gets All The Honey. 
+THe EBN Network Hub 
